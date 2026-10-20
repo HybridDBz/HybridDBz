@@ -1,4 +1,5 @@
 # Fat wip, wait for socials
 
-<img width="800" height="909" alt="NewProject9FA684923-ezgif com-video-to-gif-converter_1" src="https://github.com/user-attachments/assets/dfd3fb97-85ce-4327-995b-9759b5c08870" />
+<img width="733" height="768" alt="Untitled272_20261019185147" src="https://github.com/user-attachments/assets/7066877c-412c-4629-a1a1-f4ca8ee7e107" />
 
+# ${\textsf{\color{#640a0a} " I'm just vibin'! " }}$
